@@ -1,5 +1,5 @@
-- 👋 hi, i’m hamza
-- 🎶 i like guitaring, coding, and eating ice cream
+- 👋 i’m hamza
+- 🎶 i like guitaring and eating ice cream
 - 🌱 also like this
 - 📫 <watchdogs1234567890@gmail.com>
 
