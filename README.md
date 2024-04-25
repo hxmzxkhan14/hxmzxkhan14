@@ -1,5 +1,4 @@
 - 👋 i’m hamza
-- 🎶 i like guitaring and eating ice cream 🍧
 - 📫 <watchdogs1234567890@gmail.com>
 
 <!---
